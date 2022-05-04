@@ -14,7 +14,7 @@ email stuff here:
 hello@kitbogashow.com 
 
 You don't need to edit the entire call, but if you can show some examples of your editing or a short edit of this call that'd be fine. 
-Mostly looking to see what kind of "vision" you can bring. 
+Mostly looking to see what kind of "vision" you can bring. and get a feel for how you pace your videos
 
 
 *I am not looking to monetize your edits and nothing you send me will be used without negotiating some sort of a deal first*
